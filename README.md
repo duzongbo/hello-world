@@ -6,6 +6,5 @@ I want have a good job!
 I will win!
 There must be have a filct.
 But I Will excuted it.
-weather is bad.
-I eated apple yesterday.
+I like it!
 I'm ok
